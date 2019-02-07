@@ -5,4 +5,4 @@
 * *Apple* 
 * ~~Grapes~~
 
-[Send nudes](https://www.google.com) 
+[Send nudes](https://fr.wikipedia.org/wiki/Tartiflette) 
